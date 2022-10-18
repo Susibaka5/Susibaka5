@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Susibakao2o2oo3
+- 👀 I’m interested in Programming! 
+- 🌱 I’m currently learning phyton! 
+- 🙂 I like some chalengs in phyton! 
